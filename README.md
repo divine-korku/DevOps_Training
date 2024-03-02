@@ -1,4 +1,4 @@
 # DevOps_Training
 DevOps Training (February-June)
 
-DIVINE KORKU ANANI KAGBETOR
+DIVINE ANANI KORKU KAGBETOR
